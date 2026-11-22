@@ -6,4 +6,4 @@
 
 If I catch myself copying the same thing from one app into another, my first thought is usually, “Could I get these two talking?” That little orange wire in my logo is a pretty good picture of how my brain works.
 
-I’m learning to code as I go, usually because there’s an idea I can’t quite leave alone.
+I keep too many tabs open. Sometimes two of them add up to a business. I connect the dots, vibe code the first version, and go looking for customer number one.
